@@ -1,5 +1,5 @@
 LETS MAKE SOME GAMES FELLAS
 
-ADHD CODE GREMLIN
+<3
 
-Disclaimer: A lot of the work on my github is quite old as it is composed of projects I worked on before full-time employment. Prepare for some spicy code.
+[![Kees's GitHub stats](https://github-readme-stats.vercel.app/api?username=KeesTucker)](https://github.com/anuraghazra/github-readme-stats)
