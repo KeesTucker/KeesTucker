@@ -1,5 +1,4 @@
-LETS MAKE SOME GAMES FELLAS
+hope your having a fuckn great day <3
 
-<3
-
-Workn at Hero (School Management Software) atm.
+workn at hero (school management software) atm
+game dev nerd
