@@ -1,7 +1,7 @@
-hope your having a fuckn great day <3
+hope ur having an above average day
 
-workn at hero (school management software) atm
+work at hero (school management software)
 
-game dev nerd
+game dev/fullstack software engineer
 
-hacking ecus
+hacking stuff; motorcycle ecus, aquarium controllers, home labbbinggg
